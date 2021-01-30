@@ -1,0 +1,1 @@
+Take flour. Break 2eggs and mix it well with flour. After mixing it well, melt some dark chocolate. Then mix melted chocolate in in the mixuture of eggs and flour. Bake the mixture in oven in 200 0c for 2 mins.Then garnish the cake.
